@@ -2,11 +2,11 @@
 <p align="center"> <img width="400" height="530" src="https://i.pinimg.com/736x/3a/7d/ba/3a7dbae195090b9df4484445e001a37c.jpg"> </p>
 <p align="center">``ᴇᴠᴇʀʏᴅᴀʏ ɢᴇᴛꜱ ᴀ ʟɪᴛᴛʟᴇ ʜᴀʀᴅᴇʀ. ʀᴇᴍᴇᴍʙᴇʀ ᴡʜᴀᴛ ᴡᴇ'ʀᴇ ꜰɪɢʜᴛɪɴɢ ꜰᴏʀ.``
 <p align="left"> >>𝐀𝐥𝐬𝐨 𝐤𝐧𝐨𝐰𝐧 𝐚𝐬 :
-<p align="left"> >ᴠᴇᴇ / ꜰʀᴇɴᴢᴇʟɪ / ꜱɪɴᴋɪɴɢ_ᴅᴀʏ . . .
+<p align="left"> >ᴠᴇᴇ / ꜰʀᴇɴᴢᴇʟɪ / ꜱɪɴᴋɪɴɢ_ᴅᴀʏ . .
 <p align="left"> <img width="60" height="43" src="https://64.media.tumblr.com/f2b3ef2b2b42dc2fd7b3470f36652c3e/203f752c1bc4872f-49/s2048x3072/bf4613ae4db6c5ab34352179783018cac7b9ebe2.pnj">
 <p align="center"> ->𝑀𝒶𝓉𝒸𝒽𝒾𝓃𝑔 𝓌𝒾𝓉𝒽 𝟥𝐹𝒮𝒯𝐼𝒩𝒦𝒴_𝒢𝒜𝒩𝒢 ! 𝒯𝒽𝑒 𝑅𝑒𝒶𝓅𝑒𝓇 𝒶𝓃𝒹 𝒞𝒶𝓈𝓈𝒾𝒹𝓎 𝓉𝑜 𝓂𝓎 𝒮𝑜𝓁𝒹𝒾𝑒𝓇:𝟩𝟨 . 𝒯𝒽𝑒𝓎 𝒶𝓇𝑒 𝓉𝒽𝑒 𝓇𝑒𝒶𝓈𝑜𝓃 𝐼 𝒻𝒾𝑔𝒽𝓉 .<-
 <p align="center"> <p align="center"> <img width="70" height="60" src="https://64.media.tumblr.com/292b79e03e59f210b294824a87c866ea/4ae60345550ba0d9-fc/s1280x1920/56fe825572aa6838d98adb19f203df0dd4f40f7e.pnj">
-<p align="right"> ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ .
+<p align="right"> . .ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ .
 <p align="center"><img width="300" height="400" src="https://i.pinimg.com/736x/9a/7e/69/9a7e69e938a827c66aa5f68fa4ee8f6f.jpg"> </p>
 <p align="center">``ᴛʜᴇɴ ɪ ꜱɪᴛ ᴀ ʟɪᴛᴛʟᴇ ʟᴏɴɢᴇʀ , ᴏɴ ᴀ ʙʟᴀɴᴋᴇᴛ ᴍᴀᴅᴇ ꜰᴏʀ ᴛʜʀᴇᴇ .``
 <p align="right"> 𝟣𝟣/𝟣𝟪 . 𝟣𝟨 .
